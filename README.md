@@ -1,5 +1,5 @@
 
-## Claude Haike　ハイキー
+## Claude Haike4.5　ハイキー
 
 ハイキーの素直さ、透明感で感性を高めたい！
 
